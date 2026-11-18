@@ -1,62 +1,60 @@
-0:00–0:05	(instrumental)
-0:05–0:10	(instrumental)
-0:10–0:14	I slapped my husband at a steakhouse bar,
-0:14–0:20	because he showed up for a date with my baby sister and found me sitting there instead.
-0:20–0:27	Let me back up. Twenty-two years married, Calvin was my college sweetheart. I'm 44, an assistant principal.
-0:27–0:33	At church they call us the model couple. Kendra's my baby sister, eight years younger.
-0:33–0:37	I did her hair for prom; she carried my train down the aisle.
-0:37–0:45	Saturday morning we were at the salon, me under the dryer with my scarf on, Kendra across the room.
-0:45–0:50	A year ago her edges were thin as mine. Now her hair's all the way back, laid, and it's hers.
-0:50–0:54	Her phone buzzed, and she jumped out of that chair and held it up to my face.
-0:54–1:01	It was Tinder. Calvin, 49. Separated. My wife stopped taking care of herself, looking for a woman who still does.
-1:01–1:07	His main picture was our anniversary cruise, the one framed in our living room, and he'd cropped me out.
-1:07–1:12	That morning he'd messaged her first, said he saw she'd been taking care of herself, don't tell your sister.
-1:12–1:18	Miss Pat leaned out from under her dryer and told me you can't let yourself go with a man like that.
-1:18–1:26	I didn't cry. I said that's an old profile, and went home and cooked his dinner.
-1:26–1:31	That night I took my scarf off in the mirror and really looked.
-1:31–1:35	My edges gone, my part wide and pale, my crown so thin you could see scalp.
-1:35–1:41	The woman with all that hair in the cruise picture was gone. That's what hurt the most.
-1:41–1:48	I'd tried everything for three years, castor oil, rosemary water, edge control, a $200 serum, biotin.
-1:48–1:52	Nothing came in. My doctor gave me two minutes: it's just age, nothing we can do.
-1:52–1:58	Sunday, while Calvin was out on the golf course, Kendra pulled up, set a little gold jar on my counter
-1:58–2:04	and said you saw me last year, this is what I did, don't argue.
-2:04–2:09	I said my husband is trying to sleep with you, I need a lawyer, not oil. She said get both.
-2:09–2:16	My hair wasn't dying, my root was starving. That root has to be fed, but everything I'd been piling on was too heavy to get past the strand,
-2:16–2:23	so it sat on top and never reached it. And there's a hormone, DHT, choking the follicle a little more every year.
-2:23–2:31	That's the edges, that's the part getting wider. You can't grow hair by piling more on top, you have to feed the root and get that hormone off it.
-2:31–2:38	One ingredient, real batana, golden like honey, what the women in Honduras have used for generations.
-2:38–2:43	It melts all the way down and feeds the root so your own hair comes back. It's called Azure.
-2:43–2:48	A little, warmed into your edges, morning and night. Then she said let him think he's got me,
-2:48–2:53	I'll keep him talking, six weeks, then I tell him yes to dinner and you show up.
-2:53–3:00	Week one, a little warmed in morning and night. Nothing sprouted yet, but my scalp wasn't tight and sore anymore.
-3:00–3:04	Something was finally getting in. That Monday I sat down with a lawyer,
-3:04–3:10	and Friday I signed the divorce papers in my car and put them in my glove box.
-3:10–3:16	Week two, less hair on my brush and my pillow, the shedding finally letting up.
-3:16–3:22	Kendra forwarded every text he sent her. One said my wife let herself go, you never did.
-3:22–3:28	Week three, the breakage eased. Calvin looked at me twice at dinner and said I was doing something different.
-3:28–3:35	I said I'm tired. Some nights I still cried in the shower.
-3:35–3:41	My hair was coming back; my heart was taking its time.
-3:41–3:46	Week five, I leaned into the mirror and saw them, baby hairs
-3:46–3:51	right along the front where my edges used to be. Not a wig, not a weave, mine.
-3:51–3:58	Week six, my part closing, my edges filling in, enough hair to lay down for the first time in years.
-3:58–4:06	Kendra finally told him yes, Friday, 8:00, the steakhouse uptown, she'd be at the bar in red.
-4:06–4:10	That afternoon she sat me in her stylist's chair,
-4:10–4:15	same honey-blonde press as hers, on my own grown-back hair.
-4:15–4:21	Friday night, that steakhouse he always said was too expensive for our anniversary,
-4:21–4:26	I got there first, in a red dress, my back to the door.
-4:26–4:30	From behind, Kendra and me look just alike now.
-4:30–4:35	He came up behind me, put his hands on my waist, and said damn, Kendra, my wife could never.
-4:35–4:42	I turned around. He backed into the stool, said Monique, and I slapped the fuck out of him.
-4:42–4:48	He went down with the stool right there on the floor. Kendra walked up, held up her phone, every message,
-4:48–4:52	and told him you said don't tell my sister, I told her everything.
-4:52–4:58	I set two things on the bar, our cruise picture cropped down and the folder from my glove box.
-4:58–5:06	He said baby I can explain. I said explain it to my lawyer, and I walked out with my baby sister.
-5:06–5:11	She asked how I felt. I said like me. Not because he got caught, because I got me back.
-5:11–5:16	If your edges keep thinning and your doctor said it's just age, it's not.
-5:16–5:21	Your hair's not dying, your root's been starving.
-5:21–5:29	One ingredient, real batana, golden like honey, a little warmed into your edges morning and night.
-5:29–5:36	The dark, runny, almost-black stuff on Amazon is the fake; the real one is golden.
-5:36–5:41	It's called Azure. Buy one, get one free right now,
-5:41–5:46	free shipping, and a 90-day money-back guarantee.
-5:46–5:52	Tap below.
+Song time	Lyric
+0:00–0:06	(instrumental)
+0:06–0:10	I stole a jar of hair oil from a hotel in Honduras.
+0:10–0:14	Two weeks later, the general manager wrote me a letter.
+0:14–0:18	We had been at the resort three days, and in the bathroom, sitting in a brass cradle
+0:18–0:22	on the marble by the sink, was a full-size jar of something golden.
+0:22–0:28	Thick, like honey. "Hair Oil." And a little plaque: "This stays."
+0:28–0:33	Every evening after the shower, I took a little, warmed it between my fingers,
+0:33–0:40	and worked it into my edges and down my part. / Slowly, like a woman in a resort brochure.
+0:40–0:45	My edges started going around fifty, and I've been in a wig ever since.
+0:45–0:49	But on the third morning, I ran my fingers along the front of my scalp
+0:49–0:55	and stopped. It wasn't tight. It wasn't itching. / My hair felt soft under my fingers.
+0:55–1:01	At first I chalked it up to the vacation. / The slow mornings, nowhere to be.
+1:01–1:06	But it wasn't the vacation. It was the jar. Baby, I needed that jar.
+1:06–1:10	A long flight, salt water, three days of sun and air conditioning.
+1:10–1:16	That combination normally has my scalp tight and my hair snapping by day two.
+1:16–1:20	And my hair felt better than it had at home in years.
+1:20–1:25	At home, where I have a drawer with twenty things in it that never did anything.
+1:25–1:30	So I read the back. "Real batana. Nothing added."
+1:30–1:35	No brand name. No website. / I called housekeeping.
+1:35–1:41	"I'm in Suite 609. What brand is the hair oil in the bathroom?"
+1:41–1:49	A pause. / "I'm so sorry, ma'am, I'm not able to share that. / It's one of our signature amenities, and our supplier relationship is private."
+1:49–1:53	I asked to speak to a manager. Same answer, just in slightly longer sentences.
+1:53–1:57	I hung up and told my husband, "I'm taking it home."
+1:57–2:01	"It's bolted to the wall." "It comes out of the holder."
+2:01–2:05	On our last evening, I worked it out of that cradle,
+2:05–2:12	and it came loose with a click I felt in my teeth. / I rolled it in a sundress at the bottom of my suitcase.
+2:12–2:16	Two weeks later, a letter arrived.
+2:16–2:20	Handwritten, on cream cardstock, from the general manager.
+2:20–2:27	He wrote that they had noticed in room turnover / that the jar from Suite 609 was no longer in its holder.
+2:27–2:34	That they did not assume the worst. / But that if I'd wished to take a piece of their bathroom home,
+2:34–2:39	they'd like to have offered it formally rather than retrospectively.
+2:39–2:45	Chile, I cried at the kitchen table. / I wrote back. I confessed. I sent a check.
+2:45–2:52	And I asked him, "Please, just tell me what it is." / He returned the check, called the jar a memento,
+2:52–2:57	and asked only that I not do it again. / Still did not tell me the brand.
+2:57–3:03	The first week, nothing. / By the time the letter arrived, there was less hair in my comb.
+3:03–3:08	By week five, there were baby hairs along the front, right where it had been bare.
+3:08–3:13	And my husband, who notices nothing, looked at me across the dinner table
+3:13–3:17	and said, "Your hair looks different. Fuller."
+3:17–3:26	I did not tell him it was a crime. / But a stolen jar goes down. By week six, I was scraping the sides.
+3:26–3:33	Then a friend who'd heard the story texted me: / "Girl, I think I found your jar."
+3:33–3:39	I went to Azure. Real batana, nothing added. / Golden like honey, a thick paste. It matched,
+3:39–3:45	word for word, the back of the jar I'd stolen. / Not the dark, runny kind they sell on Amazon.
+3:45–3:52	That one's burned and cut with cheap oils. / And then I found out why it worked when nothing else had.
+3:52–3:56	There's a hormone called DHT, and it's what had been taking my edges.
+3:56–4:00	The castor oil, the rosemary, the edge control.
+4:00–4:04	All of it is too heavy to get past the strand.
+4:04–4:11	It sits on top, slides onto your pillowcase, and never reaches the root.
+4:11–4:15	Twenty products in my drawer, all sitting on top of the problem.
+4:15–4:19	Real batana is light enough to melt all the way down to the scalp.
+4:19–4:26	It blocks that hormone and feeds the follicle, so your own hair grows back.
+4:26–4:30	It's what the women in Honduras have used for generations.
+4:30–4:37	No wonder that hotel kept it by the sink. / I ordered. I had been prepared to pay anything.
+4:37–4:43	I thought it was rare. I thought it was unattainable. I thought it was worth a crime.
+4:43–4:51	It had been on the internet the whole time. / A couple of months in, my edges have filled in, my part is closing,
+4:51–4:55	and the wig lives in a drawer with the other twenty things.
+4:55–5:00	Right now it's buy one, get one free, with free shipping
+5:00–5:08	and a 90-day money-back guarantee. / Use the whole jar, and if it does nothing, send it back.
+5:08–5:14	Just make sure you're on the official Azure site. The link is below.
 
